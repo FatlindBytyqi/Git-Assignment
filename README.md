@@ -1,0 +1,1 @@
+Pershendetje, ketu po editoj kete file.
